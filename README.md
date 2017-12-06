@@ -1,5 +1,6 @@
 # hell0-wurld
-I rly dont kno atm
-what d fuq am i doing with myself and what am i learning
+Howru today?
 
-trying to learn more 
+I hope very well. I am learning about Github and it's not so bad so far but i still dkwtf is going on
+
+kthx
